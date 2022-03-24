@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @jturrubiantes.
+- 👀 I’m interested in art, history, science, and programming.  
+- 📫 How to reach me ... jturrubiantes@my.lonestar.edu.
